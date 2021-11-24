@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning angular 
 - 💞️ I’m looking for how to start frelancing
 - 📫 How to reach me 
-                  E-mail - naman28jain2006@gmail.com
+                  E-mail - Namanjain28work@gmail.com
                   telegram - @mr_namanjain
                   
 
